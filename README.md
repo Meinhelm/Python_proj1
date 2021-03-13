@@ -1,0 +1,3 @@
+# Python_proj1
+go crazy fsafgsagagasgasg
+ыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыыы
